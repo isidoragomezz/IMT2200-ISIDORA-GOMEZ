@@ -1,0 +1,2 @@
+# IMT2200-ISIDORA-GOMEZ
+GitHub publico para IMT2200 2025-2
